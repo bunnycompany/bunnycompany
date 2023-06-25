@@ -1,5 +1,9 @@
 ### Hi there 👋
 
+welcome! if you're new here check out the farm https://dreambunny.farm
+
+more details coming soon ✨✨✨
+
 <!--
 **bunnycompany/bunnycompany** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
