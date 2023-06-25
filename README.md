@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hello everybunny 👋
 
 welcome! if you're new here check out the farm https://dreambunny.farm
 
